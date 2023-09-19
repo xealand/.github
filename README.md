@@ -1,4 +1,5 @@
 # xealand
 xealand makes apps, games, etc
 we're cool
-not a brand of Carroted, while some of our products may be endorsed or developed by Carroted
+based in the US because yeah
+xealand is not from New Zealand
